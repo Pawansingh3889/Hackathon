@@ -3,4 +3,4 @@ Ravi Kumar Singh
 Yogendar Singh  
 Pawan Singh Kapkoti  
 Kartik Mandal  
-Adnan qudsi
+Adnan Qudsi
